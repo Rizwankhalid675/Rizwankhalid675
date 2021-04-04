@@ -2,4 +2,4 @@
 - 👀 I’m interested in Building wordpress websites
 - 🌱 I’m currently learning software engineering
 - 💞️ I’m looking to collaborate on ...
-- 📫 you can reach my phone at:+92312-6055891 or email me at:Rizwan.khalid675@gmail.com
+- 📫 you can reach me throught email at:Rizwan.khalid675@gmail.com
